@@ -1,0 +1,10 @@
+#About Me
+My name is Andre, and I go by Dre. I am a combat veteran of the U.S Army
+forces. I served for 14 years.
+I am exciting to learn new things, and I always try to do my best during 
+obstacles.
+[Linkedin](www.linkedin.com/in/andre-g-petion-jr-mba-18984629)
+My goal is to build a startup, which would help to explain why people
+don't need to go to the banks anymore, whereas they would be able to 
+do everything at home, in their portable mobile phones
+[Business](www.oli-branch.com)
